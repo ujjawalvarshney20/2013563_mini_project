@@ -1,4 +1,4 @@
-# 2013563_mini_project
+# 2013563_mini_project_6_sem
 UJJAWAL VARSHNEY
 GRAPHIC ERA UNIVERSITY, DEHRADUN
 
